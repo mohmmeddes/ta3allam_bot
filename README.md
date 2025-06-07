@@ -1,1 +1,0 @@
-# ta3allam_bot
